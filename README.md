@@ -1,1 +1,1 @@
-# zadanie7_
+# zadania-1-6
